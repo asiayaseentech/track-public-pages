@@ -4,7 +4,7 @@ Last updated: [Current Date]
 
 ## Introduction
 
-This Privacy Policy describes how we collect, use, and handle your information when you use our educational application ("App"). We are committed to protecting your privacy and ensuring that your personal information is handled in a safe and responsible manner.
+This Privacy Policy describes how we collect, use, and handle your information when you use our educational application ("Tutor"). We are committed to protecting your privacy and ensuring that your personal information is handled in a safe and responsible manner.
 
 ## Educational Content Disclaimer
 
